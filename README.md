@@ -11,6 +11,9 @@
 
 - 📫 How to reach me **giovannasm@gmail.com**
 
+- ![image](https://github.com/aulagithubcw/aulagithubcw/assets/174149821/06536a2d-cc37-4c39-a46f-7fafe64ffe1c)
+
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
